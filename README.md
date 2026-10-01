@@ -47,7 +47,7 @@ I specialize in **analyzing data, building dashboards, and translating insights 
 
 ## 📫 Connect With Me
 
-* 💼 [LinkedIn](#https://www.linkedin.com/in/mehrzadkhodashenas/)
+* 💼 [LinkedIn](https://www.linkedin.com/in/mehrzadkhodashenas/)
 
 ---
 
